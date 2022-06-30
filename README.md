@@ -1,0 +1,24 @@
+AUTHOR FOR WEBSITE
+------------------
+NAME : SHAIK SALMAN
+MAILID :SHAIKSALMAN7A@GMAIL.COM
+-------------------
+
+THEME
+-----------------
+THEME : FOOD ORDER
+VERSION :1.0
+------------------
+
+SKILLS OF A AUTHOR
+------------------
+*WORDPRESS
+*FRONT END WEB DEVLOPMENT
+*DIGITAL MARKETING
+*FREELANCER
+*THEMES DESINER
+--------------------
+
+FOLLOW ME
+------------
+INSTAGRAM ID :I._.M__DRUG_
